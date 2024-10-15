@@ -23,8 +23,8 @@ Discord: teintein2305<br>Facebook:<a href="https://www.facebook.com/ttptein/" ta
 <div style="display:flex">
     <img src="https://i.pinimg.com/originals/3f/1e/e3/3f1ee3b6cbe8312c9bac9268f3ec3a8b.gif" width="200" height = "200">
 <img src="https://i.pinimg.com/originals/1a/95/95/1a959521c04966d1607a83797b409325.gif" width="200" height = "200">
-<img src="https://courses.huflit.edu.vn/draftfile.php/342515…ft/826969860/984875372ef02d7846df8731cc7095cb.gif" width="200" height = "200">
-<img src="https://courses.huflit.edu.vn/draftfile.php/342515…ft/826969860/58bb709d0c1e8f498771bd617f8845ea.gif" width="200" height = "200">
+<img src="https://i.pinimg.com/originals/74/85/6c/74856c9f5d5d51db3deff4e38c0dea77.gif" width="200" height = "200">
+<img src="https://i.pinimg.com/originals/2f/2a/22/2f2a22c61adad4ae8b8050dfea5ca5d4.gif" width="200" height = "200">
 </div>
 
 
