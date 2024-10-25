@@ -71,6 +71,7 @@ I'm a weirdo person, so I might gonna add u guys hehe, becareful!!!!!!!!
 Got an exciting project or collaboration opportunity? Reach out to me!
 
 - 📧 Email: thaigiabao122@gmail.com
+- 📧 PhoneNumber: 0792509301
 
 ## 🎉 My blog!
 
