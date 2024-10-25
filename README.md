@@ -47,7 +47,7 @@ I'm a weirdo person, so I might gonna add u guys hehe, becareful!!!!!!!!
 ## 🌟 Interests
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/63/3c/c4/633cc450fec5f576592348e7a3b59495.gif">
+  <img width="100%" src="https://i.pinimg.com/originals/63/3c/c4/633cc450fec5f576592348e7a3b59495.gif">
 </p>
 
 ## 📊 Music
